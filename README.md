@@ -1,1 +1,1 @@
-# ulbolsyn.github.io
+# ulbos.github.io
